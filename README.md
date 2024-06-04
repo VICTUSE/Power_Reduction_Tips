@@ -1,0 +1,1 @@
+# Power_Reduction_Tips
